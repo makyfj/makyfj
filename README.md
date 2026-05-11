@@ -1,1 +1,5 @@
-![04035134624e769a635e4ed923536b5875f9ace4fa77d9faac8a40992d3d082f-Photoroom](https://github.com/user-attachments/assets/b9ccba6c-01fb-4bf6-aec5-ac67cda62734)
+i like building things that are useful and fun.
+
+try my latest bouldering app: [getcima.app](https://getcima.app)
+
+<img width="1315" height="818" alt="c8e94b503aef8c205da43f2561b05b3a3676b0690e4bf20f03a4734696082bf5" src="https://github.com/user-attachments/assets/a0623559-0e31-4fda-a1cb-68810bab547b" />
